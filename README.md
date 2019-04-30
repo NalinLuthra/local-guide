@@ -1,2 +1,3 @@
-# local-guide
-In this repository I share my achievements, places I have been to and blog about being a local guide.
+###Under Construction
+
+This video will be live by June 15th
